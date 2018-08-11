@@ -3,8 +3,11 @@ https://clarkdrainage.com
 If you live in or around the Glasgow area and need to organise an emergency drain service to sort out any blocked drains or various other problems, look no further than Clark Drainage. We are proud of our 1-2 hour average response time and work 365 days of the year to make sure our 24 hour emergency drainage and sewer services are always available when you need them most.
 
 Clark Drainage
+
 614 Eglinton St, Glasgow, G5 9RR
+
 0141 280 3431
+
 https://clarkdrainage.com/locations/drainage-contractor-glasgow
 
 For urgent assistance. Call Clark Drainage Glasgow today on 0141 280 3431 for a FREE Survey or advice. Emergency 24 hour call out service available.
